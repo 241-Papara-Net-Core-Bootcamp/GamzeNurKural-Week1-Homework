@@ -1,0 +1,1 @@
+# GamzeNurKural-Week1-Homework
